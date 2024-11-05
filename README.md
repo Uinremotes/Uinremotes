@@ -4,7 +4,7 @@ Welcome to **Uniremotes.com** - your ultimate destination for everything related
 
 ---
 
-## About Us
+## [About Us](https://uniremotes.com/about-us)
 
 At Uniremotes, we understand the hassle that comes with setting up and pairing universal remotes with different devices. That’s why our mission is to provide clear, step-by-step guides to make the process frustration-free.
 
