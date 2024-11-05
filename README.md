@@ -1,4 +1,4 @@
-# [Uniremotes.com](Uniremotes.com)
+# [Uniremotes.com](https://Uniremotes.com)
 
 Welcome to **Uniremotes.com** - your ultimate destination for everything related to universal remotes. From TVs to other electronic gadgets, we’ve got you covered with all the information you need to enhance and simplify your home entertainment experience.
 
